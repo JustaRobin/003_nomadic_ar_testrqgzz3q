@@ -1,1 +1,0 @@
-# 003_nomadic_ar_testrqgzz3q
